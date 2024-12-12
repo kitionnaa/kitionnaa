@@ -1,0 +1,6 @@
+- 👋 Hi, I’m kitiona
+- 👀 I’m interested in Rugby
+- 🌱 I’m currently learning Automotive Mechanical engineering Level 3
+- 💞️ I’m looking to collaborate on Fortnite content
+- 📫 How to reach me Ig: @kitionnaa
+- ⚡ Fun fact: Im 6ft
